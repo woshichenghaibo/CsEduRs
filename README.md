@@ -6,6 +6,5 @@ In the School, the special Chinese Language Training Centre is established to or
 
 <a href="https://v6.51.la/report/overview?comId=3126038" target="_blank">VisitReport</a>
 
-|
 
 <a href="https://www.cs.edu.rs/" target="_blank">SignUp a EduMail</a>
